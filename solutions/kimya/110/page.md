@@ -1,0 +1,9 @@
+# 10. Sınıf Kimya Ders Kitabı Meb Yayınları Cevapları Sayfa 110
+
+---
+
+Herhangi bir kap içinde basıncı dış basınçtan daha büyük bir gaz olduğu zaman kapta bulunabilecek çok küçük bir delikten kabın iç basıncı dış basınca eşit olana dek gaz dışarıya doğru yayılarak kaçar. Sıkışmış gaz moleküllerinin bulundukları kabın bir bölmesinden diğerine küçük bir delikten geçerek yayılmasına efüzyon (dışa yayılma, sızma) adı verilir (Görsel 1.21). Etüzyon kapta oluşan deliğin boyutuna bağlıdır. Delik çok küçükse efüzyon gerçekleşmeyebilir. Örneğin pilates topu basketbol potasına atılırsa top potaya çarpıp seker. Benzer şekilde gaz molekülleri küçük deliklerden geçemeyebilir. Gazın bulunduğu kaba daha büyük delikler açılırsa da süreç efüzyon yerine difüzyon olarak düşünülebilir.
+
+Efüzyon, moleküllerin dar bir alandan geçişi nedeniyle genellikle difüzyondan daha hızlıdır. Difüzyon ise gazların geniş bir alanda homojen karışım oluşturmasıyla gerçekleşeceği için daha uzun zaman alır. Difüzyon hızı; sıcaklık, parçacık boyutu ve moleküllerin yapısı gibi faktörlerden etkilenir. Her iki süreç de gaz moleküllerinin hareket hızlarıyla ilişkilidir. Graham difüzyon yasasına göre düşük molekül ağırlığındaki gaz molekülleri ağır olanlara kıyasla daha yüksek ortalama hızlara sahiptir. Bu da artan çarpışma sıklığına ve dolayısıyla daha hızlı difüzyon veya efüzyona neden olur. Graham difüzyon yasası bir elementin izotoplarının ayrılmasında kullanılır. Örneğin uranyum izotopları flor ile tepkimeye girdiğinde UF6 (uranyum hekzaflorür) elde edilir. 235UF6 ve 236UFS karışımı buharlaşma sıcaklığının üzerinde ısıtıldıktan sonra bir gözenekli engelden geçirilir. 235UF6 gazı 236UF6 gazına göre daha hızlı olduğundan işlem binlerce kez yinelenerek izotoplar birbirinden ayrılır. Bu işlem günümüzde nükleer santrallerde 235U bakımından zenginleştirilmiş yakıt için kullanılmaktadır.
+
+-   **Cevap**:**Bu sayfada soru bulunmamaktadır.**

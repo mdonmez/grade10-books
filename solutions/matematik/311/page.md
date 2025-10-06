@@ -1,0 +1,7 @@
+# 10. Sınıf Matematik Kitabı Cevapları Meb Yayınları Sayfa 311
+
+---
+
+Sayıların ve yazılı kayıtların henüz kullanılmadığı eski çağlarda insanlar, sayma ve miktar belirleme gerektiren durumlarla başa çıkmak için pratik ve görsel yöntemler geliştirmişlerdir. Örneğin bir çoban, sürüsündeki hayvanların sayısını belirlemesi gerektiğinde her bir hayvan için bir taş kullanarak bu taşları bir kenara koymuş ve günün sonunda taşlarla hayvanları eşleştirerek hayvanlarının sayısını kontrol edebilmiştir. Böylece karmaşık hesaplamalara ihtiyaç duymadan nesneleri eşleştirip, görsel işaretlerle takip ederek miktarları belirlemişlerdir. Bu basit ama etkili yöntemler sayılar ve yazılı kayıtların temellerinin atılmasına da öncülük etmiştir. Toplama ve çarpmanın keşfi bu süreci hızlandırmıştır. Ritmik sayma yapmadan toplama ve çarpma yoluyla saymaya geçiş, daha büyük ve karmaşık miktarları hızlı ve verimli bir şekilde hesaplamayı mümkün kılmıştır. Sayılar ile çıkılan bu yol bugün şifreleme ve algoritma ile farklı alanlara ulaşmıştır. Veri dizilerinin seçilmesi ve belirli bir sıraya göre düzenlenmesi ile şifreleme tekniklerinde bilgi güvenliği sağlanmaktadır. Sıralama ve seçme, hem bilgi güvenliği hem de hesaplama verimliliği açısından kritik bir matematiksel işlem olarak bugün kullanılmaktadır.
+
+-   **Cevap**:**Bu sayfada soru bulunmamaktadır.**

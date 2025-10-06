@@ -1,0 +1,13 @@
+# 10. Sınıf Coğrafya Kitabı Cevapları Meb Yayınları Sayfa 209
+
+---
+
+**Eski Türklerde Evlenme Gelenekleri**
+
+Türk kültüründe evlenmek yeni bir ev kurmak, aile kurmak anlamına geliyordu. Gelenekte akraba evliliği yoktu. Evlilik diğer boylardan kişilerle yapılırdı. Böylece akraba sayısı çoğaltılır ve boylar arasında dayanışma artırılırdı. Evlenme oğlan ve kızın ortak iradesi, aile büyüklerinin rızası ve onayı ile gerçekleşirdi. Gençler evlenmek istediğinde arkuçı veya savcı adı verilen aracılar devreye girerdi. Aracılar, kız tarafının ailesiyle görüşürler ve olumlu cevap alınırsa oğlan tarafı aile büyükleriyle kız istemeye giderlerdi. Kız tarafı verdim, oğlan tarafı aldım ifadesini kullanınca evlenme kararı alınmış olurdu. Bu söz kesme töreninde oğlan tarafı kız tarafına kalıng (başlık) adı verilen hediyeler verirdi. Kız babasına yetiştirme hakkı olarak at, kız annesine süt hakkı olarak elbise hediye edilirdi. Ayrıca kızın kardeşlerine de çeşitli hediyeler gönderilir, bunlara da ağırlık veya yandış adı verilirdi. Buna karşılık kız tarafı da kızın aile mirasından payına düşen mal kadar hediye hazırlar ve buna da çeyiz adı verilirdi. Evlenme geleneği düğün ile tamamlanırdı. Gelin ve gelinin otağı süslenirdi. Düğün yemeği yenir, eğlenceler düzenlenir, çeşitli oyunlar oynanırdı. Evlenen kıza gelin, oğ!ana küdegü (güvey) denirdi. Gelin, kız evinden oğlan tarafının verdiği yeni eve veya çadıra at ile getirilirdi. Düğün süresince güveyin yanında sağdıç adı verilen bir arkadaşı bulunurdu.
+
+Türklerde yaygın olarak her yılın bir hayvan adıyla anıldığı, 12 yıllık döngülerden oluşan bir takvim kullanılıyordu. İlkbaharın başladığı 21 Mart yılbaşı olarak kabul edilir ve bu güne Nevruz (Yeni Gün) adı verilirdi. Nevruz yani yeni yılın başlangıcı bayram olarak kabul edilip çeşitli eğlencelerle kutlanırdı. Bu gelenek hâlâ devam etmektedir (Görsel 7.5). Türk kültüründe bitki, hayvan ve yer adlarında renkler yaygın olarak kullanılıyordu. Türklerde belirli renkler yönleri ifade ediyordu. Kara kuzeyi, ak batıyı, kızıl güneyi, gök doğuyu temsil ediyordu. Türkler coğrafi unsurları adlandırırken de renkleri kullanmışlardır. Aksu, Karadağ, Kızıl Deniz, Akdeniz, Kara- göl gibi isimlerdeki renkler aslında o yerin konumunu belirtmektedir. Örneğin Akdeniz batıdaki deniz anlamındadır.
+
+Türkler, bu dönemde hâkimiyet altına aldıkları güney bölgelerindeki yerleşik ve tüccar bir kavim olan Soğudlar ile doğu bölgelerindeki konargöçer Moğollarla yakın etkileşim içinde olmuştur. Komşu ülkeler olan Çin, İran ve Bizans ile ticari, siyasi ve kültürel ilişki içinde bulunmuşlardır.
+
+-   **Cevap**:**Bu sayfada soru bulunmamaktadır.**

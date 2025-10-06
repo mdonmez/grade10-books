@@ -1,0 +1,13 @@
+# 10. Sınıf Türk Dili ve Edebiyatı Ders Kitabı Meb Yayınları Cevapları Sayfa 243
+
+---
+
+kışlaklı, seksen bin er heybetli, kara çelik kılıcın keskini, sürcidanın çeviği, sahar okların temreni, Azerbaycan lengeri, Padişahın vekili, Ulaş Oğlu Kazan; kara yazın en sıcak günlerinde ava çıkmış, tazısıyla av arıyordu. Ördekleri ürküttü, ala parsları kükretti, üç yüz yiğidi alıp, Ak Minkan’a ava gitti. Ak Minkan’da av avladı, kuş kuşladı, ikindi zamanı dedi ki: “Beylerim, kimse benimle gelmesin, hepiniz orduya geri dönün. Ben yalnız başıma bir av avlayıp gelirim.”
+
+Askerlerini gönderdikten sonra, Kazan, Konur At’ının üstünde Ak Minkan’ın tepesine geldi, karanlık bastı. Bu kadar yol gelmesine rağmen bir şey avlayamadı. Perverdigâr’a el açıp; “Ben beylerimden bir av avlarım diye ayrıldım. Bir av avlayayım, yurduma avsız gitmeyeyim. Yurduma, orduma sen beni avsız gönderme.”
+
+Bu yakarıştan sonra alçak yerlere göz gezdirip av aradı. Kara Dağ’ın eteğinde yedi yerde meşale gibi yanan ışıklar gördü. Yedi yerde koyu koyu tütüp çıkan duman gördü. Kazan bu ışıkları kendi ordusunun meşale ışıkları sandı. Atının üstünde o ışıklara doğru, dağın tepesinden aşağıya, yola koyuldu. Bu sırada, Kazan’ın askerleri arasında olan Lala Kılbaş adındaki Kazan’ın lalası işitti ki Kazan yalnız başına av yerinde kalmış. Bunu öğrenir öğrenmez yerinde duramadı. Kazan’ın ardınca gitti. Bu sırada Kazan, ışıkların olduğu yere yaklaşınca tepe gibi bir cismi yatar gördü, meşe gibi kokan bir cismi eser gördü. Yedi yer evreni bir ejderhaya rast geldi. Yedi yerde meşale gibi yanan o ejderhanın gözleriymiş. Yedi yerde koyu koyu tütüp çıkan o ejderhanın ağzının salyasıymış. Meşe gibi kokan o ejderhanın yalıymış. Ejderhayı gören Kazan’ın yüreği doldu, taştı, güm güm attı, Kazan’ın aklı başından gitti.
+
+Kazan, ejderha ile dövüşmeye niyetlendi. Tam bu sırada dönüp arkasına baktı. Lala Kılbaş’ı arkası sıra hazır gördü. Lalası ile konuşup onun fikrini sordu: “Canım Lala, bu tepe gibi yatan ejderhayı görür müsün? Bu ejderhanın üstüne varalım mı, yoksa yan taraftan sessizce savuşup kaçalım mı? Bu konudaki fikrin, en iyisi nedir?” Lala düşündü ki: “Kazan dedikleri er yiğittir, mert yiğittir. Ejderhanın üstüne gitme desem, belki bana kızıp, öfkelenir ve gazap eder.” Lala dedi: “Beyim, karşı yatan Kara Dağ’ın gözbebeği sensin, taşkın akan suların durgunu sensin, yılkının aygırı sensin, deve sürüsünün buğuru sensin, koyunların koçu sensin, erenlerin serdarı sensin, yiğitlerin koçağı sensin. Ejderha dediklerinin aslı bir yılandır. O yılanın üstüne gitmelisin.” dedi. Kazan, Konur At’ını sürüp ejderhanın yakınına geldi. Ejderhayı ölü gibi yatar gördü. Kazan kendi kendine düşündü: “Yatmış, uyurken
+
+-   **Cevap**:**Bu sayfada soru bulunmamaktadır.**

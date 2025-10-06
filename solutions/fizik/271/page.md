@@ -1,0 +1,9 @@
+# 10. Sınıf Fizik Ders Kitabı Meb Yayınları Cevapları Sayfa 271
+
+---
+
+Dalgalarla hayatın pek çok alanında karşılaşılmaktadır. Örneğin su yüzeyinde oluşan dalgaların yayılması, ses dalgalarının kaynağından daha uzakta da duyulabilmesi, yerin kilometrelerce altında oluşan bir depremin yüzeyde de hissedilmesi gibi olaylar dalgaların taşıdığı enerji ile açıklanır. Dalgalar, taşıdığı enerjiye ve yayılma doğrultusuna göre sınıflandırılabilir. Bu sınıflandırma dalgaların tanımlanması ve incelenmesi açısından önem taşır. Dalgaların farklı türleri olsa da onları tanımlayan temel kavramlar ortaktır. Bu kavramlar sayesinde dalgaların enerjisi, sürati gibi fiziksel büyüklükler belirlenebilir.
+
+ Dalga süratinin ortam koşullarına bağlı olarak değişim göstermesinden birçok teknolojik cihazın geliştirilmesinde yararlanılmıştır. Örneğin bazı canlıların ses dalgalarının yayılma özelliklerini kullanarak yönlerini tayin etmesi ultrason ve radar gibi cihazların geliştirilmesine ilham kaynağı olmuştur. Ayrıca düzenli hareket eden gök cisimlerinin gözlemlenmesiyle oluşturulan takvimler sayesinde mevsimlerin ve diğer astronomik olayların önceden tahmin edilmesi mümkün hâle gelmiştir. Tıp, ulaşım, haberleşme gibi alanlarda kullanılan dalga türleri insan hayatını kolaylaştırıcı etkilere sahipken deprem, tsunami (dev dalga) gibi dalgalar doğal afetlere neden olarak yıkıcı etkiler oluşturabilmektedir. Günümüzde teknolojik ilerlemelerin önemli bir parçası olan dalgaların özelliklerini anlamak ve bu özelliklerden yararlanmak, gelecekte güvenli ve sürdürülebilir bir yaşam için büyük bir öneme sahiptir.
+
+-   **Cevap**:**Bu sayfada soru bulunmamaktadır.**

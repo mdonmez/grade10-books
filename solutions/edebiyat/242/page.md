@@ -1,0 +1,15 @@
+# 10. Sınıf Türk Dili ve Edebiyatı Ders Kitabı Meb Yayınları Cevapları Sayfa 242
+
+---
+
+**SALUR KAZAN’IN**
+
+**YEDİ BAŞLI EJDERHAYI ÖLDÜRDÜĞÜ BOY**
+
+Kayser Salur ayası, dumanlı dağ börüsi, Salur igi, Eymür sevinci, Dulkadir delisi, Bayındır Padişahın vekili Kazan der: “Beylerimle ala karlı, gök sümbüllü dağlara ava gitmiş (…) idim. Serhat beylerinden ulak geldi: ‘Kazan ne içersin? On bin düşman üstüne geliyor/ dedi. On bin düşman geldiğini işitince kollarımı kavuşturup ak otağ içindeki evime girdim. ‘Yirmi bin düşman geliyor.’ deyince yerimden kımıldamadım. ‘Otuz bin geliyor.’ deyince hiçe saydım. ‘Kırk bin geliyor.’ deyince kara gözümün ucundan sert baktım, çekinmedim. ‘Elli bin geliyor.’ deyince (…) ‘Azdır.’ dedim. ‘Altmış bin geliyor.’ deyince Allah’ı andım, atlanmadım. ‘Yetmiş bin geliyor.’ deyince yeltenmedim. ‘Seksen bin geliyor.’ deyince ürpermedim. ‘Doksan bin düşman geliyor.’ deyince arkaya doğru kaydım, zırhımı giydim. ‘Yüz bin düşman geliyor.’ deyince yüz çevirip gitmedim. Akarsudan abdest aldım, alnımı yere koyup namaz kıldım. (…) O günde kimleri öncü süvari birliği başı yaptım; Adabasa yerinde heybetiyle yer titreten, hasmına sert baktığında yürek yaran, aç aslanın ciğer, bağrını kara sac içinde kavurup yiyen, çaya girse çalımlı, kara kartal erdemli, avcı kuşun çeviği, Türkistan’ın direği, Halep hanı, iki yaylı hadeng oklu, Kara Göne yavrusu Kara Budak’ı öncü birliği başı yaptım. Sağdan kimi saldım; Bayındır Padişah için Biçen Padişahı’na elçi giden, vardığında Alay Han ile Bolay Hanı alt eden, (…) al aygırı, Padişah Bayındır’ın ödülünü alan kapan, savaş meydanlarının çiçeği, avcı başı Han Afşar’ı sağdan saldım. Soldan kimi saldım; kızılca Tebriz’den dökülüp göçen, Araş ve Kür Suyu’nu yarıp geçen, Demir Kapı Derbend’i tepip alan, teptiğinde mızrağı ucunda er böğürten, Kumuklu’nun ödünü yaran, Şah Dağı üstünde gölgeliğini geren, (…) kara kış gününde Kabal’dan taze elma alıp gelen, (…) Mangışlak’a talan salan, Tabasaran Sultanı yirmi dört bin yiğidin başı Kıyan Oğlu Deli Dündar’ı soldan saldım.”
+
+Kazan der: “Kendim merkezde durdum. İç Oğuz beylerini sağdan saldım, Dış Oğuz ağalarını soldan buyurdum. Alagöz’ün ağzında, Şerencana düzünde yüz bin kâfire karşı geldim. Rakip tuttum, savaş yaptım, yedi gün yedi gece o kâfirlere kılıç çaldım. Yedi günden sonra etrafıma baktım, yedi kâfir kılıcım karşısında vuruşmaya girişmeyince yüz bin kâfirin kırıldığını ondan anladım. Araş ve Kars Kalesi’ni o seferde aldım. Başı Açık’tan esir aldım. Akça Kale Sürmeli’de Lala Kılbaş’ı daruga (yönetici) yaptım. Beylerle Serhab Dağı’na seyre çıktım. Keyfimin yerinde olduğu sırada altı bey oğluna tuğra ve nekkare verip, kendim gibi bey yaptım.”
+
+ Kazan der: “O anda bile alpım, erim diyerek övünmedim.” Bîr gün âdemler evreni, İslâm dini kuvveti, Konur atlı, Salur iği, Eymür’ün sevinci, Dulkadir delisi, Savalan Dağı yaylaklı, Sarıkamış
+
+-   **Cevap**:**Bu sayfada soru bulunmamaktadır.**
