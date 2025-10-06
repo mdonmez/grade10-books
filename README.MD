@@ -1,4 +1,4 @@
-# Turkish Ministry of Education 10th Grade Curriculum Repository
+# Turkish Ministry of Education 10th Grade Curriculum Book Data Collection
 
 ## Overview
 
