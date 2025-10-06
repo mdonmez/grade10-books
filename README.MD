@@ -88,7 +88,8 @@ Solutions were collected using custom web scrapers targeting Turkish educational
 ## License & Legal Disclaimer
 
 > [!WARNING]
-> All textbooks included here are the intellectual property of the Turkish Ministry of Education (MEB).  
-> Solution guides are compiled from publicly accessible educational sources. This repository is intended solely for educational and non-commercial use.  
-> If you are a copyright holder and believe your material has been included inappropriately, please open an issue on GitHub to request its removal.  
-> This repository itself does not carry a specific license; all third-party materials remain subject to their original respective licenses.
+>
+> - All textbooks included here are the intellectual property of the Turkish Ministry of Education (MEB).
+> - Solution guides are compiled from publicly accessible educational sources. This repository is intended solely for educational and non-commercial use.
+> - If you are a copyright holder and believe your material has been included inappropriately, please open an issue on GitHub to request its removal.
+> - This repository itself does not carry a specific license; all third-party materials remain subject to their original respective licenses.
